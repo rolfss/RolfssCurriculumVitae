@@ -1,7 +1,7 @@
 # Rolf Selås
 **Application Management | Software Development | Information and Records Governance**
 
-Oslo region, Norway · +47 994 47 133 · [rolselaas@gmail.com](mailto:rolfselaas@gmail.com) · [github.com/rolfss](https://github.com/rolfss)
+Oslo region, Norway · +47 994 47 133 · [rolfselaas@gmail.com](mailto:rolfselaas@gmail.com) · [github.com/rolfss](https://github.com/rolfss)
 
 ## Professional profile
 
